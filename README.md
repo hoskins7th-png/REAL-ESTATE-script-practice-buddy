@@ -1,88 +1,88 @@
-Q: I’m selling FSBO to save money.
-R: I get it—you want to keep more of your proceeds. FSBOs often “save” commission but lose more in price cuts because buyers can’t picture the payment; I add clear financing options so you keep price and keep profit. 
-FSBO Objection Handling & Role-…
-Q: I already have buyers interested.
-R: Interest isn’t approval. About 40% of “done deals” die late over financing; I verify your buyers in 24 hours so you don’t waste 30–45 days restarting. 
-FSBO Objection Handling & Role-…
-Q: Buyers get their own financing—why do I need you?
-R: Most walk away from homes they actually can afford because they can’t see the monthly. I show 2–3 payment paths (e.g., 2-1 buydown, FHA), and interest turns into offers. 
-FSBO Objection Handling & Role-…
-Q: I don’t want to pay extra fees.
-R: You don’t—buyers pay me when the loan closes. You get pre-qualified showings and faster closings at zero cost to you. 
-FSBO Objection Handling & Role-…
-Q: I already work with a lender.
-R: Keep them. I’m your Plan B for edge cases—self-employed buyers, non-QM, portfolio loans, non-warrantable condos—so good buyers don’t get turned away. 
-FSBO Objection Handling & Role-…
-Q: I don’t have time for this.
-R: Then you need me. I pre-screen so you do fewer showings with only qualified buyers—less chaos, more offers. Setup takes about 10 minutes. 
-FSBO Objection Handling & Role-…
-Q: I don’t want agents or brokers involved.
-R: You stay in control—I don’t list your home. I’m the financing guardrail that keeps your “yes” from falling apart at underwriting. 
-FSBO Objection Handling & Role-…
-Q: My price is already sharp—I’ll sell without help.
-R: Price isn’t the usual blocker—payment clarity is. Show the monthly with options and you unlock full-price offers without cutting. 
-FSBO Objection Handling & Role-…
-Q: I’ll list with an agent soon if FSBO doesn’t work.
-R: Smart backup. Before you pay 5–6%, let’s eliminate the financing barrier in 2–3 weeks so you know if price or presentation is really the issue. 
-FSBO Objection Handling & Role-…
-Q: Buyers told me they’re pre-approved.
-R: Pre-approved isn’t approved for your property. HOA rules, appraisal gaps, and DTI shifts kill deals late—I verify fit for your home now. 
-FSBO Objection Handling & Role-…
-Q: I’ve sold homes before—I know what I’m doing.
-R: Totally. What’s changed is financing: buydowns, non-QM, portfolio programs. I add tools most lenders don’t present, and you sell faster. 
-FSBO Objection Handling & Role-…
-Q: I don’t want to hand over my buyers’ info.
-R: Don’t. I give you a one-page affordability sheet; you hand it out, and buyers contact me if they want options. You stay in control. 
-FSBO Objection Handling & Role-…
-Q: This sounds too good to be true—what’s the catch?
-R: No catch. I’m paid when buyers close their loans. Your success is literally how I get paid—no fees from you, no fine print. 
-FSBO Objection Handling & Role-…
-Q: If I need to, I’ll just lower the price.
-R: Most FSBOs cut price when the real issue is payment confusion. Clarity beats discounting—don’t leave $15–20K on the table for nothing. 
-FSBO Objection Handling & Role-…
-Q: Buyers only care about getting a deal, not loan options.
-R: Data says 73% walk away from homes they love due to affordability uncertainty. Show them a $/mo they can handle and “maybe” becomes “offer.”
 Q: Why should I list with you?
-R: I’m both a licensed real estate broker AND a mortgage loan officer, so I fix the financing gap that killed your first listing and convert showings into real offers. 
-EXPIRED LISTING SELLERS OBJECTI…
+A: I’m both a licensed real estate broker AND a mortgage loan officer, so I fix the financing gap that killed your first listing and convert showings into real offers.
+
 Q: I’m already relisting with my agent.
-R: Loyalty is fine—but if the plan is the same (wait and drop price), you’ll get the same result; I relaunch with payment scenarios that make buyers act. 
-EXPIRED LISTING SELLERS OBJECTI…
+A: Loyalty is fine—but if the plan is the same (wait and drop price), you’ll get the same result; I relaunch with payment scenarios that make buyers act.
+
 Q: I’m taking a break from selling.
-R: Breaks don’t stop carrying costs; let me show you exactly why it didn’t sell and a 30-day fix so you don’t burn another $2–3K/month. 
-EXPIRED LISTING SELLERS OBJECTI…
+A: Breaks don’t stop carrying costs; let me show you exactly why it didn’t sell and a 30-day fix so you don’t burn another $2–3K/month.
+
 Q: The market is bad—nothing sells.
-R: Homes near you are selling in 30–45 days; it wasn’t “the market,” it was missing affordability clarity—my specialty. 
-EXPIRED LISTING SELLERS OBJECTI…
+A: Homes near you are selling in 30–45 days; it wasn’t “the market,” it was missing affordability clarity—my specialty.
+
 Q: I already dropped the price twice—I’m done.
-R: Good—stop dropping; I show 2–3 financing paths (e.g., 2-1 buydown, FHA, conventional) so buyers pay your price with confidence. 
-EXPIRED LISTING SELLERS OBJECTI…
+A: Good—stop dropping; I show 2–3 financing paths (e.g., 2-1 buydown, FHA, conventional) so buyers pay your price with confidence.
+
 Q: My home is fine; the agent was the problem.
-R: Probably the strategy was; perfect photos don’t close buyers who can’t see the payment—finance-first positioning does. 
-EXPIRED LISTING SELLERS OBJECTI…
+A: Probably the strategy was; perfect photos don’t close buyers who can’t see the payment—finance-first positioning does.
+
 Q: I don’t want another broker.
-R: I’m not “another broker”—I’m broker + lender; I control marketing AND financing so deals don’t die at underwriting. 
-EXPIRED LISTING SELLERS OBJECTI…
+A: I’m not “another broker”—I’m broker + lender; I control marketing AND financing so deals don’t die at underwriting.
+
 Q: I’ll just rent it out.
-R: That’s a band-aid with tenant risk and management costs; I’d rather sell in 30–45 days and free your cash without landlord drama. 
-EXPIRED LISTING SELLERS OBJECTI…
+A: That’s a band-aid with tenant risk and management costs; I’d rather sell in 30–45 days and free your cash without landlord drama.
+
 Q: I can’t afford another commission.
-R: You’re already paying $2–3K/month to wait; a fast, financed sale often nets more than months of carry hoping to save a fee. 
-EXPIRED LISTING SELLERS OBJECTI…
+A: You’re already paying $2–3K/month to wait; a fast, financed sale often nets more than months of carry hoping to save a fee.
+
 Q: I need to think about it.
-R: Think with data, not guesswork—let me send a free breakdown of what blocked the sale and the exact fix, then decide. 
-EXPIRED LISTING SELLERS OBJECTI…
+A: Think with data, not guesswork—let me send a free breakdown of what blocked the sale and the exact fix, then decide.
+
 Q: Buyers just aren’t out there.
-R: They are—your showings proved it; they left without offering because they couldn’t map the monthly; I solve that on-page and in-person. 
-EXPIRED LISTING SELLERS OBJECTI…
+A: They are—your showings proved it; they left without offering because they couldn’t map the monthly; I solve that on-page and in-person.
+
 Q: I’m waiting for spring.
-R: Spring brings more buyers—and 2x the competing listings; selling now with financing clarity often beats waiting and paying carry. 
-EXPIRED LISTING SELLERS OBJECTI…
+A: Spring brings more buyers—and 2x the competing listings; selling now with financing clarity often beats waiting and paying carry.
+
 Q: My agent says “be patient.”
-R: “Be patient” isn’t a plan; a new strategy is—finance-forward relaunch with pre-qualified buyers and payment options. 
-EXPIRED LISTING SELLERS OBJECTI…
+A: “Be patient” isn’t a plan; a new strategy is—finance-forward relaunch with pre-qualified buyers and payment options.
+
 Q: Lenders always blow up my deals.
-R: That’s why I pre-qualify before offers and quarterback the loan myself; fewer surprises, faster closings. 
-EXPIRED LISTING SELLERS OBJECTI…
+A: That’s why I pre-qualify before offers and quarterback the loan myself; fewer surprises, faster closings.
+
 Q: How does a mortgage broker help me sell?
-R: Price is a number; payment is a feeling—when I show buyers exactly how they can afford your home, hesitation turns into offers.
+A: Price is a number; payment is a feeling—when I show buyers exactly how they can afford your home, hesitation turns into offers.
+Q: I’m selling FSBO to save money.
+A: Fair—but FSBOs often “save” commission and lose more in price cuts and delays. I keep your price firm by showing buyers clear payment options that turn interest into offers.
+
+Q: I already have a few buyers interested.
+A: Interest isn’t approval. I verify financing fit fast and present multiple payment paths so one of those “maybes” becomes a clean, funded offer.
+
+Q: Buyers get their own financing—why do I need you?
+A: Most buyers walk when they can’t picture the monthly. I show 2–3 payment scenarios (e.g., 2-1 buydown, FHA vs. conventional) so they can say yes at your price.
+
+Q: I don’t want to pay extra fees.
+A: You don’t. I’m paid by the buyer’s loan at closing. You get qualified showings and stronger offers without writing a check.
+
+Q: I already work with a bank.
+A: Great—keep them. I’m your Plan B for edge cases (self-employed, non-QM, portfolio loans) so good buyers aren’t turned away.
+
+Q: I don’t have time for this right now.
+A: Then you need screening. I pre-qualify buyers before they see your home so you do fewer showings with only real contenders.
+
+Q: I’m not working with agents or brokers at all.
+A: You stay FSBO. I’m not listing your home—I’m the financing arm that keeps deals from dying at underwriting while you keep control.
+
+Q: My price is already sharp; I’ll sell without help.
+A: Price isn’t the usual blocker—payment clarity is. Show buyers how your price fits their budget and you attract full-price offers without discounting.
+
+Q: I’ll list with an agent if FSBO fails.
+A: That’s a costly plan. First, eliminate the financing friction in 2–3 weeks; if it still doesn’t move, then consider listing.
+
+Q: Buyers told me they’re pre-approved.
+A: For some house—maybe not yours. HOA rules, appraisal, DTI, and program guidelines can kill deals. I confirm fit for your property upfront.
+
+Q: I’ve sold FSBO before—I know what I’m doing.
+A: Respect. The game changed—buydowns, lender credits, and program mixes are now the difference between “nice showing” and “new contract.”
+
+Q: I don’t want to give you my buyers’ info.
+A: Don’t. I provide a one-page affordability sheet you can hand out. Buyers contact me only if they want options. You keep control.
+
+Q: This sounds too good to be true. What’s the catch?
+A: No catch. I’m paid when a buyer’s loan closes. If you don’t sell, I don’t get paid—our incentives are aligned.
+
+Q: If needed, I’ll just lower my price.
+A: Cutting is a blunt tool. Clarity beats discounting: show a monthly number buyers can handle, and you keep more equity without racing to the bottom.
+
+Q: Buyers only care about deals, not loan options.
+A: Buyers care about certainty. When they see a payment they can live with, “we’ll think about it” turns into “we’re writing.”
